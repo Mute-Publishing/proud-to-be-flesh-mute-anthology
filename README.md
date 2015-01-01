@@ -4,7 +4,7 @@ A book by Mute Publishing - [http://proudtobeflesh.org/](http://proudtobeflesh.o
 
 In 1994, while many of us were grappling with our first Eudora accounts, Mute magazine announced its timely arrival. Dedicated to an analysis of culture and politics after the net,Mute has consistently challenged the grandiose claims of the communications revolution, debunking its utopian rhetoric and offering more critical perspectives. Proud to be Flesh selects representative articles from the magazine’s hugely diverse content to reprise some of its recurring themes. This expansive collection of texts charts the perilous journey from Web 1.0 to 2.0, contesting the democratisation this transition implied and laying bare our incorporeal expectations; it exposes the ways in which the logic of technology intersects with that of art and music and, in turn and inevitably, with the logic of business; it heralds the rise of neoliberalism and condemns the human cost; it amplifies the murmurs of dissent and revels in the first signs of collapse. The result is an impressive overview of contemporary culture in its broadest sense. In the midst of a global crisis, Proud to be Flesh is an invaluable sourcebook for anyone wondering how we found ourselves here.
 
-Editors: Josephine Berry Slater and Pauline vanMourik Broekman with Michael Corris, Anthony Iles, Benedict Seymour and SimonWorthington
+Editors: Josephine Berry Slater and Pauline van Mourik Broekman with Michael Corris, Anthony Iles, Benedict Seymour and Simon Worthington
 
 Published by Mute Publishing in association with Autonomedia
 
