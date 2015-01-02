@@ -22,7 +22,7 @@ DE - [http://www.amazon.de/Proud-Be-Flesh-Magazine-Anthology/dp/1906496285](http
 
 Chapter titles:
 
-1. Direct Democracy and its Demons:Web 1.0 to Web 2.0
+1. Direct Democracy and its Demons: Web 1.0 to Web 2.0
 2. Net Art to Conceptual Art and Back
 3. I, Cyborg: Reinventing the Human
 4. Of Commoners and Criminals
